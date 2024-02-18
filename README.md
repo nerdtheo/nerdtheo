@@ -1,4 +1,4 @@
-->sum random blinkies for u :3c 
+sum random blinkies for u :3c 
 ![f5d4f615](https://github.com/slutcorpses/slutcorpses/assets/113836721/be14cb4f-270f-4a20-af16-138b2dc88911)
 ![e639c77d](https://github.com/slutcorpses/slutcorpses/assets/113836721/62d378c8-7398-4704-ae41-0446630e3357)
 ![d3fd4856](https://github.com/slutcorpses/slutcorpses/assets/113836721/f5846b67-9c36-4168-96e6-cbaba6216c9e)
@@ -17,4 +17,5 @@
 ![8f4c7657](https://github.com/slutcorpses/slutcorpses/assets/113836721/a207fdf8-eca5-4f9b-ad59-ea66e9ca861f)
 ![4d626c62](https://github.com/slutcorpses/slutcorpses/assets/113836721/1eb245cb-ec09-479c-8608-11c0489349ad)
 ![1ec4543a](https://github.com/slutcorpses/slutcorpses/assets/113836721/04f0097e-d5ed-4657-b898-286e663ad41f)
-![12312312](https://github.com/slutcorpses/slutcorpses/assets/113836721/8e2df78b-56f7-46c3-a689-6cfc18b58fd2)<-
+![12312312](https://github.com/slutcorpses/slutcorpses/assets/113836721/8e2df78b-56f7-46c3-a689-6cfc18b58fd2)
+creds; Bunnyteethh_ ⛧
