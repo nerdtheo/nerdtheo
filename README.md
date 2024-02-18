@@ -10,4 +10,7 @@
 ![8f4c7657](https://github.com/slutcorpses/slutcorpses/assets/113836721/840464ed-df96-4d8a-ab72-038dba7c2b4d)
 ![334f32fd](https://github.com/slutcorpses/slutcorpses/assets/113836721/11621690-0638-4fa9-bd75-3aeac0f00d1b)
 ![4d626c62](https://github.com/slutcorpses/slutcorpses/assets/113836721/8fb930aa-766b-4668-bbd0-bbc44563cc12)
-![1ec4543a](https://github.com/slutcorpses/slutcorpses/assets/113836721/cbb09b61-ad6d-4192-b204-d01289cb5fa8)
+![a17cfb0b](https://github.com/slutcorpses/slutcorpses/assets/113836721/70df4763-ef36-4a02-925e-c69c98042390)
+![a65e4188](https://github.com/slutcorpses/slutcorpses/assets/113836721/017ea16![d2cbd53e](https://github.com/slutcorpses/slutcorpses/assets/113836721/4a11fa23-53e3-4e1a-b2d1-d352ff4d5042)
+e-b868-49b3-8de4-8f30d7160e2d)
+![a6ec4e87](https://github.com/slutcorpses/slutcorpses/assets/113836721/79c54ab7-5c9b-461f-9b1d-0eac9e25500e)
