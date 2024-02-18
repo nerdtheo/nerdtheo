@@ -1,4 +1,3 @@
-sum random blinkies for u :3c 
 ![f5d4f615](https://github.com/slutcorpses/slutcorpses/assets/113836721/be14cb4f-270f-4a20-af16-138b2dc88911)
 ![e639c77d](https://github.com/slutcorpses/slutcorpses/assets/113836721/62d378c8-7398-4704-ae41-0446630e3357)
 ![d3fd4856](https://github.com/slutcorpses/slutcorpses/assets/113836721/f5846b67-9c36-4168-96e6-cbaba6216c9e)
