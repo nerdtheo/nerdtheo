@@ -1,21 +1,21 @@
-random blinkies for u :3c
-![f5d4f615](https://github.com/slutcorpses/slutcorpses/assets/113836721/be14cb4f-270f-4a20-af16-138b2dc88911)
-![e639c77d](https://github.com/slutcorpses/slutcorpses/assets/113836721/62d378c8-7398-4704-ae41-0446630e3357)
-![d3fd4856](https://github.com/slutcorpses/slutcorpses/assets/113836721/f5846b67-9c36-4168-96e6-cbaba6216c9e)
-![d2cbd53e](https://github.com/slutcorpses/slutcorpses/assets/113836721/8cc5a27c-a32d-4b6d-8868-2dfbfefd9252)
-![ce5411b0](https://github.com/slutcorpses/slutcorpses/assets/113836721/2d422f90-7ef8-489b-b25c-3aa4f15430f2)
-![a65e4188](https://github.com/slutcorpses/slutcorpses/assets/113836721/a6e10b2c-1104-4707-9cb7-08dc1d6abf53)
-![a17cfb0b](https://github.com/slutcorpses/slutcorpses/assets/113836721/38039c2f-6caf-4b58-b42b-13dafba7c922)
-![a8f5239b](https://github.com/slutcorpses/slutcorpses/assets/113836721/699c7333-30c9-4742-a5e5-eab75a973f29)
-![a7c9690b](https://github.com/slutcorpses/slutcorpses/assets/113836721/18478d8f-9980-4e85-a00c-f23c0e81c886)
-![a6ec4e87](https://github.com/slutcorpses/slutcorpses/assets/113836721/0425fed6-2ab3-4699-baba-64565ef74c4b)
-![36278d8f](https://github.com/slutcorpses/slutcorpses/assets/113836721/99b25e7e-a44b-4408-9341-0ed80fd1d5fb)
-![2870ab7d](https://github.com/slutcorpses/slutcorpses/assets/113836721/2cf23409-d0e5-4621-93e4-7832ff70cb18)
-![334f32fd](https://github.com/slutcorpses/slutcorpses/assets/113836721/9e4664ad-5e76-4570-8c8f-7b3d1517b928)
-![85e12115](https://github.com/slutcorpses/slutcorpses/assets/113836721/cf19e246-8f0f-4157-9363-e0189d459b24)
-![14b68d4b](https://github.com/slutcorpses/slutcorpses/assets/113836721/f5164048-64c7-481e-8821-40104044ca6f)
-![8f4c7657](https://github.com/slutcorpses/slutcorpses/assets/113836721/a207fdf8-eca5-4f9b-ad59-ea66e9ca861f)
-![4d626c62](https://github.com/slutcorpses/slutcorpses/assets/113836721/1eb245cb-ec09-479c-8608-11c0489349ad)
-![1ec4543a](https://github.com/slutcorpses/slutcorpses/assets/113836721/04f0097e-d5ed-4657-b898-286e663ad41f)
-![12312312](https://github.com/slutcorpses/slutcorpses/assets/113836721/8e2df78b-56f7-46c3-a689-6cfc18b58fd2)
-creds; Bunnyteethh_ ⛧
+<div align="center">
+  <img height="15" src="https://media.discordapp.net/attachments/1149675345436479512/1208803694381105252/image.png?ex=65e49d2b&is=65d2282b&hm=f90b0e973bdece90116232ecb95a2959065526ff7c7dcb5e5ae809ea746aef37&=&format=webp&quality=lossless&width=1077&height=13"  />
+</div>
+
+###
+
+<div align="center">
+  <img height="600" src="https://media.discordapp.net/attachments/1149675345436479512/1209096503927504917/12312312.jpeg?ex=65e5adde&is=65d338de&hm=4b499b23bc370fd92f0ca58e96e768a8831f60a057790fd65c139c568bdbae54&=&format=webp&width=521&height=521"  />
+</div>
+
+###
+
+<p align="center">⋆˚｡⋆ KIKO or toby/nick .⛧hypersexual gay , <br>🐾 ˖ ࣪ ‹ transneutral genderflux enby + .<br>  otherkin AUTbpd . theistic satanist ⛧<br>｡   DNI crit ;; kwuiko.carrd.co</p>
+
+###
+
+<div align="center">
+  <img height="15" src="https://media.discordapp.net/attachments/1149675345436479512/1208803502885961778/image.png?ex=65e49cfd&is=65d227fd&hm=e6e008fe1a44313f47d75f7aff4b63f7fbf100f4dc7dd27a8c91d6b099d93e71&=&format=webp&quality=lossless&width=1077&height=12"  />
+</div>
+
+###
