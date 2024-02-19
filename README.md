@@ -22,7 +22,7 @@
 
 ###
 
-<p align="center">🐾 ࣪ ‹ INTERESTS/HYPFX ⛧<br>⛧ TAWOG, bluey, happy tree friends,<br>south park, animal crossing, regretevator, regular show,<br>garfield nd friends, super mario<br><br> ࣪ ‹ HYPFX; jake webber & johnnie guilbert , zootopia, bfdi(a),<br>paw patrol, mlp, poppy playtime⛧ 🐾</p>
+<p align="center">🐾 ࣪ ‹ INTERESTS/HYPFX ⛧<br><br>⛧ TAWOG, bluey, happy tree friends,<br>south park, animal crossing, regretevator, regular show,<br>garfield nd friends, super mario<br><br> ࣪ ‹ HYPFX; jake webber & johnnie guilbert , zootopia, bfdi(a),<br>paw patrol, mlp, poppy playtime⛧ 🐾</p>
 
 ###
 
