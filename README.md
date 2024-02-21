@@ -10,7 +10,7 @@
 
 ###
 
-<p align="center">⋆˚｡⋆ ⛧IT/xe/fox>/them + any neos  . ࣪ ‹<br> ‹ + 8TEEN , (19.01) › ⛧ foxgender + vamp + .<br>⛧ TAKEN by the cutest pookster ever .</p>
+<p align="center">⋆˚｡⋆ ⛧IT/xe/fox>them + any neos  . ࣪ ‹<br> ‹ + 8TEEN , (19.01) › ⛧ foxgender + vamp + .<br>⛧ TAKEN by the cutest pookster ever .</p>
 
 ###
 
