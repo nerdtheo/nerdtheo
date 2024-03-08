@@ -5,7 +5,7 @@
 ###
 
 <div align="center">
-  <img height="500" src="https://cdn.discordapp.com/attachments/1149675345436479512/1209104696455864400/YEA.png?ex=65e5b57f&is=65d3407f&hm=dbfea4236176566d95e01a3472c7ba011f3f040afb5d68467a4926e791ec9a7c&"  />
+    <img height="400" src="https://cdn.discordapp.com/attachments/1149675345436479512/1215571562174877707/111111111.jpeg?ex=65fd3c3c&is=65eac73c&hm=c14d336086e812e9c92f5c0c4fff39a61938884d649a155ab662a367a87d51d1&"  />
 </div>
 
 ###
@@ -14,19 +14,16 @@
 
 ###
 
-<img align="right" height="240" src="https://media.discordapp.net/attachments/1149675345436479512/1209124193355042836/12311-removebg-preview.png?ex=65e5c7a8&is=65d352a8&hm=2a1a0355d5498714a4ccf350d641c943512e53073bf47e4b1043fe83c19519ca&=&format=webp&quality=lossless"  />
+<img align="right" height="200" src="https://media.discordapp.net/attachments/1149675345436479512/1215572590232604693/412412121.jpg?ex=65fd3d31&is=65eac831&hm=c536ac01758f5c58189628703383c56f4de5fbebdca8e46d6b554a60ad45af12&=&format=webp&width=473&height=521"  />
+</div>
+
+
+###
+<p align="center">🐾 ࣪ ‹ INTERESTS/HYPFX ⛧<br>⛧ TAWOG, bluey, happy tree friends,<br>south park, animal crossing, regretevator, regular show,<br>garfield nd friends, super mario<br><br> ࣪ ‹ HYPFX; jake webber & johnnie guilbert , zootopia, bfdi(a),<br>paw patrol, mlp, poppy playtime ⛧🌙💤 </p>
 
 ###
 
-<p align="center">‎ ‌‎ ‎⛧ ESSENTIAL INFO ˖ ࣪ ‹ +<br><br>🐾 ࣪ ‹ i DONT identify as a human and <br>dont u even dare referring to me as one.<br><br> ࣪ ‹ im extremely hypersexual, most of<br>the time i talk abt explicit topics (such <br>as gore, EDs, mental disorders nd other stuff) 🐾<br><br> ࣪ ‹  im an ambivert (mostly extraverted nd fyi an introject), <br>however my social battery's span isnt that durable, bear that<br> in mind upon contacting me.</p>
-
-###
-
-<p align="center">🐾 ࣪ ‹ INTERESTS/HYPFX ⛧<br>⛧ TAWOG, bluey, happy tree friends,<br>south park, animal crossing, regretevator, regular show,<br>garfield nd friends, super mario<br><br> ࣪ ‹ HYPFX; jake webber & johnnie guilbert , zootopia, bfdi(a),<br>paw patrol, mlp, poppy playtime⛧ 🐾</p>
-
-###
-
-<p align="left">creds; Bunnyteethh_ ⛧ BluCottonCloudy</p>
+<p align="left">creds; Bunnyteethh_ ⛧ bonnie_l4 </p>
 
 ###
 
