@@ -23,7 +23,7 @@
 
 ###
 
-<p align="left">꒰creds; Bunnyteethh_ ⛧ bonnie_l4꒱ </p>
+<p align="left">꒰creds; Bunnyteethh_ ⛧ bonnie_l4 . pfp; moonnarxx ꒱ </p>
 
 ###
 
