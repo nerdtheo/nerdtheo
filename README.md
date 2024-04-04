@@ -5,8 +5,7 @@
 ###
 
 <div align="center">
-    <img height="400" src="[https://cdn.discordapp.com/attachments/1149675345436479512/1215571562174877707/111111111.jpeg?ex=65fd3c3c&is=65eac73c&hm=c14d336086e812e9c92f5c0c4fff39a61938884d649a155ab662a367a87d51d1&](https://media.discordapp.net/attachments/1149675345436479512/1225508951592800356/111111111.png?ex=66216326&is=660eee26&hm=298f169e9304b475f6423463a3f013d448283c0834b59243a78b6b1c1d253068&=&format=webp&quality=lossless&width=550&height=261)"  />
-</div>
+     <img height="400" src="https://cdn.discordapp.com/attachments/1149675345436479512/1225508951592800356/111111111.png?ex=66216326&is=660eee26&hm=298f169e9304b475f6423463a3f013d448283c0834b59243a78b6b1c1d253068&"  />
 
 ###
 
