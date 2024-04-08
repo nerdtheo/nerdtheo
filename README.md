@@ -13,9 +13,8 @@
 
 ###
 
-<img align="right" height="200" src="https://media.discordapp.net/attachments/1149675345436479512/1215572590232604693/412412121.jpg?ex=65fd3d31&is=65eac831&hm=c536ac01758f5c58189628703383c56f4de5fbebdca8e46d6b554a60ad45af12&=&format=webp&width=473&height=521"  />
+<img align="right" height="200" src="https://cdn.discordapp.com/attachments/1149675345436479512/1226859596035919972/412412121.png?ex=66264d09&is=6613d809&hm=9eaea775471debc60a5e73025420831177bda4a0313101390953ba666b711710&"  />
 </div>
-
 
 ###
 <p align="center">🐾 ࣪ ‹ INTERESTS/HYPFX ⛧<br>⛧ TAWOG, bluey, happy tree friends, <br> south park, animal crossing, regretevator, <br>regular show, garfield nd friends, super mario<br><br> ࣪ ‹ HYPFX; jake webber & johnnie guilbert , zootopia, <br>bfdi(a), paw patrol, mlp, poppy playtime ⛧🌙💤 </p>
