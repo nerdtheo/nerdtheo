@@ -1,42 +1,29 @@
 <div align="center">
-  <img height="15" src="https://gifcity.carrd.co/assets/images/gallery45/8805551b.gif?v=26dffab5"  />
+  <img height="90" src="https://64.media.tumblr.com/a274a0463c927d9438c32dc34e386ef2/1d1a397483c48290-7c/s2048x3072/e686642dd39f117f2733174cca588b2da7402d89.pnj"  />
 </div>
 
 ###
 
 <div align="center">
-     <img height="400" src="https://cdn.discordapp.com/attachments/1149675345436479512/1225508951592800356/111111111.png?ex=66216326&is=660eee26&hm=298f169e9304b475f6423463a3f013d448283c0834b59243a78b6b1c1d253068&"  />
-
-###
-
-<p align="center">⋆˚｡⋆ ⛧ IT/xe/fox>them + any neos  . ࣪ ‹<br> ‹ + 8TEEN , (19.01) › 🌙 foxgender + vamp + .<br>⛧ catnap fictionkin & otherhearted dogday ! .</p>
-
-###
-
-<img align="right" height="200" src="https://cdn.discordapp.com/attachments/1149675345436479512/1226859596035919972/412412121.png?ex=66264d09&is=6613d809&hm=9eaea775471debc60a5e73025420831177bda4a0313101390953ba666b711710&"  />
+  <img height="400" src="https://cdn.discordapp.com/attachments/1149675345436479512/1228002493313843361/image.png?ex=662a7571&is=66180071&hm=5daeaa592b46908d4c773c4541a914b57d863715301ff229168e796e52557f59&"  />
 </div>
 
 ###
-<p align="center">🐾 ࣪ ‹ INTERESTS/HYPFX ⛧<br>⛧ TAWOG, bluey, happy tree friends, <br> south park, animal crossing, regretevator, <br>regular show, garfield nd friends, super mario<br><br> ࣪ ‹ HYPFX; jake webber & johnnie guilbert , zootopia, <br>bfdi(a), paw patrol, mlp, poppy playtime ⛧🌙💤 </p>
+
+<p align="center">⋆˚｡⋆ ⛧ IT/xe/fox>them + any neos ☀️ ₊‌‎˚⊹‎  <br>‹ + 8TEEN , (19.01) › 🌙 pupgender + vamp + .⛧<br>. ࣪ ‹ catnap fictionkin & otherhearted dogday ! .</p>
 
 ###
 
-<p align="left">꒰creds; Bunnyteethh_ ⛧ bonnie_l4 . pfp; Siampoo ꒱ </p>
+<img align="right" height="200" src="https://cdn.discordapp.com/attachments/1149675345436479512/1228003227350470826/12312312.jpg?ex=662a7620&is=66180120&hm=6da231cfa94787676032d3fdaa4547234e7fdff6f2f1e651460c165dd22613f9&"  />
+
+###
+
+<p align="left">꒰creds; , <br><br>⛧ moonnarxx . , ,<br>pfp; Siampoo ꒱<br><br>☀️ ₊‌‎˚⊹‎ tg dms - doggoday<br><br>, , dc ; .dog.day.</p>
 
 ###
 
 <div align="center">
-  <img height="15" src="https://gifcity.carrd.co/assets/images/gallery45/8805551b.gif?v=26dffab5"  />
+  <img height="90" src="https://64.media.tumblr.com/a274a0463c927d9438c32dc34e386ef2/1d1a397483c48290-7c/s2048x3072/e686642dd39f117f2733174cca588b2da7402d89.pnj"  />
 </div>
-
-
-<div align="center"> 
-
-![a7c9690b](https://github.com/slutcorpses/slutcorpses/assets/113836721/6bfdf38f-c112-4a7e-bb5f-804cdb707cb1)
-![14b68d4b](https://github.com/slutcorpses/slutcorpses/assets/113836721/0eac292f-06f0-40ec-8c23-22d00b262d0a)
-![2870ab7d](https://github.com/slutcorpses/slutcorpses/assets/113836721/36f40845-e65c-401f-b8b0-02b2ff9446e2)
-![d2cbd53e](https://github.com/slutcorpses/slutcorpses/assets/113836721/e6ba87a9-1d8d-4d8f-8c91-f19fb8d89a0d)
-
-
 
 ###
