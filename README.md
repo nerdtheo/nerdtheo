@@ -18,7 +18,7 @@
 
 ###
 
-<p align="left">꒰creds; , <br><br>⛧ moonnarxx . , ,<br>pfp; Siampoo ꒱<br><br>☀️ ₊‌‎˚⊹‎ tg dms - doggoday<br><br>, , dc ; .dog.day.</p>
+<p align="left">꒰creds; , <br><br>⛧ moonnarxx . Siampoo  , ,<br>pfp; ruttychan ꒱<br><br>☀️ ₊‌‎˚⊹‎ tg dms - doggoday<br><br>, , dc ; .dog.day.</p>
 
 ###
 
