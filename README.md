@@ -10,7 +10,7 @@
 
 ###
 
-<p align="center">⋆˚｡⋆ ⛧ IT/xe/fox>them + any neos ☀️ ₊‌‎˚⊹‎  <br>‹ + 8TEEN , (19.01) › 🌙 pupgender + vamp + .⛧<br>. ࣪ ‹ catnap fictionkin & otherhearted dogday ! .</p>
+<p align="center">⋆˚࿔ IT/xe/fox>them + any neos 𝜗𝜚˚⋆  <br>8TEEN , (19.01) › 🌙 pupgender ；；<br>. ࣪ ‹ catnap fictionkin & otherhearted dogday ᵎᵎ</p>
 
 ###
 
@@ -18,7 +18,7 @@
 
 ###
 
-<p align="left">social dysphoria + anxiety, beware! ★ <br><br> ꒰creds; , <br>⛧ moonnarxx . Siampoo  , ,<br>pfp; ruttychan ꒱<br><br>☀️ ₊‌‎˚⊹‎ tg dms - doggoday<br><br>, , dc ; .dog.day.</p>
+<p align="left">social dysphoria + anxiety, beware! ★ <br><br> ꒰creds; , <br>𝜗𝜚 moonnarxx . Siampoo ；；<br>pfp; ruttychan ꒱<br><br>⊹˚.‎ tg dms - doggoday<br><br>；； dc - .dog.day.</p>
 
 ###
 
