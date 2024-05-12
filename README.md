@@ -18,7 +18,7 @@
 
 ###
 
-<p align="left">social dysphoria + anxiety, beware! ★ <br><br> ꒰creds; , <br>𝜗𝜚 moonnarxx . Siampoo ；；<br>pfp; ruttychan ꒱<br><br>⊹˚.‎ tg dms - doggoday<br><br>；； dc - .dog.day.</p>
+<p align="left">social dysphoria + anxiety, beware! ★ <br><br> ꒰creds; , <br>𝜗𝜚 moonnarxx . Siampoo ；；<br>pfp; TailsGadgetCave ꒱<br><br>⊹˚.‎ tg dms - doggoday<br><br>；； dc - .dog.day.</p>
 
 ###
 
