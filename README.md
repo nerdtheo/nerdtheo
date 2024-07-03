@@ -42,6 +42,6 @@
 
 ###
 
-<p align="left">₊‌‎˚⊹ credits ; TailsGadgetCave</p>
+<p align="left">₊‌‎˚⊹ credits ; TailsGadgetCave , ootachi</p>
 
 ###
