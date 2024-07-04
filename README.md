@@ -3,7 +3,7 @@
 ###
 
 <div align="center">
-  <img height="300" src="https://64.media.tumblr.com/b3b92e13e42c9a9777851514511aaa68/0f87e9f8f1ca332f-36/s1280x1920/6ee8ebdc9435a0ac682b2d89a17c242380cbd9cc.jpg"  />
+  <img height="300" src="https://64.media.tumblr.com/e8a9b13c16d2588ea46a88273487d54a/f0481cc7512da6c3-f9/s1280x1920/bf4ac8cba21ac9ab330f140041a90a5347cf4f0e.jpg"  />
 </div>
 
 ###
@@ -13,17 +13,17 @@
 ###
 
 <div align="center">
-  <img height="70" src="https://64.media.tumblr.com/2e8b8b85c1b92bffe30d5c7e4b7262ce/0f87e9f8f1ca332f-8b/s1280x1920/e7ee6e5a4b9817eea4f3d8d2c25533caf192935d.jpg"  />
+  <img height="70" src="https://64.media.tumblr.com/5413093fc6f048f2f2c7387c1511a7c9/f0481cc7512da6c3-7a/s1280x1920/5f05aee82a8fdbd67c4d422b150b6168ec5416e6.jpg"  />
 </div>
 
 ###
 
-<p align="center">HYPFX；ppt (sc) ˖ , ( catnap fictionkin && otherhearted dogday )</p>
+<p align="center">HYPFX；deltarune , undertale , cult of the lamb , . ( otherhearted ralsei :3 )</p>
 
 ###
 
 <div align="center">
-  <img height="250" src="https://64.media.tumblr.com/d2a851e55ac27e8c64c70828583f00ab/0f87e9f8f1ca332f-d6/s1280x1920/a1331873c4c4f388547506b72c4f03ccb75949f1.jpg"  />
+  <img height="250" src="https://64.media.tumblr.com/40e12f1e92ab94316201f0e883ffb1d4/f0481cc7512da6c3-57/s1280x1920/7b7a032374a78c2de93e10f5b47aea06f8c97a07.jpg"  />
 </div>
 
 ###
@@ -33,15 +33,11 @@
 ###
 
 <div align="center">
-  <img height="70" src="https://64.media.tumblr.com/d2a39587493cae1598291477879cd29b/0f87e9f8f1ca332f-bc/s1280x1920/79be76fa79a272fc449e8b267709067cfd928b51.jpg"  />
+  <img height="70" src="https://64.media.tumblr.com/80c3783503ff7f9ca11f67883c60ff3b/f0481cc7512da6c3-54/s1280x1920/5bbf05d6b805663451ac1498b4267957c84dd2e6.jpg"  />
 </div>
 
 ###
 
 <p align="center">； ˖ , ,‎for labels etc check out telegram !</p>
-
-###
-
-<p align="left">₊‌‎˚⊹ credits ; TailsGadgetCave , ootachi</p>
 
 ###
