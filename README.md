@@ -1,43 +1,23 @@
-<p align="center">「 , , theo ；toby 」, it/xe>them + any neos , ,</p>
+<p align="center">୨  ꒰ info ꒱  ୧</p>
 
 ###
 
 <div align="center">
-  <img height="300" src="https://64.media.tumblr.com/e8a9b13c16d2588ea46a88273487d54a/f0481cc7512da6c3-f9/s1280x1920/bf4ac8cba21ac9ab330f140041a90a5347cf4f0e.jpg"  />
+  <img height="500" src="https://64.media.tumblr.com/25626b84ddbc0f21491bb354b2081464/1367cc86447532ae-2f/s1280x1920/a1068ea8e96a9735343eb7161d4e10bc51983ba9.pnj"  />
 </div>
 
 ###
 
-<p align="center">； ˖ , ,‎  main interests ；hypfx , ,<br><br>, TAWOG , bluey, happy tree friends, south park, animal crossing, hollow knight <br>regular show , super mario , mcr . . omori . murder drones , , helluva boss</p>
+<p align="center">❛ quill / theodore ❜<br><br>greyromantic aroace<br><br>enby┊audhd + bpd ﹗﹗</p>
 
 ###
 
 <div align="center">
-  <img height="70" src="https://64.media.tumblr.com/5413093fc6f048f2f2c7387c1511a7c9/f0481cc7512da6c3-7a/s1280x1920/5f05aee82a8fdbd67c4d422b150b6168ec5416e6.jpg"  />
+  <img height="50" src="https://64.media.tumblr.com/4e6ad95d5af347f442c51d14c546459d/c0fdf24734023141-2c/s2048x3072/0a77aa598a09fcbe860040971739ee11c40291da.pnj"  />
 </div>
 
 ###
 
-<p align="center">HYPFX；deltarune , undertale , cult of the lamb , . ( otherhearted ralsei :3 )</p>
-
-###
-
-<div align="center">
-  <img height="250" src="https://64.media.tumblr.com/40e12f1e92ab94316201f0e883ffb1d4/f0481cc7512da6c3-57/s1280x1920/7b7a032374a78c2de93e10f5b47aea06f8c97a07.jpg"  />
-</div>
-
-###
-
-<p align="center">； ˖ , ,‎ BYI <br><br>✦ i'm an ambivert BUT mostly i don't take the initiative in talking,<br>✦ my sense of humour is crude and sexual , bear that in mind .<br>✦ rather moody all the time, easily irritated and short-tempered .</p>
-
-###
-
-<div align="center">
-  <img height="70" src="https://64.media.tumblr.com/80c3783503ff7f9ca11f67883c60ff3b/f0481cc7512da6c3-54/s1280x1920/5bbf05d6b805663451ac1498b4267957c84dd2e6.jpg"  />
-</div>
-
-###
-
-<p align="center">； ˖ , ,‎for labels etc check out telegram !</p>
+<p align="center">୨  ꒰ check socials for more ꒱  ୧<br><br><br><br><br>⟡ credits ；abbyflowertale ┊</p>
 
 ###
